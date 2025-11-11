@@ -1,2 +1,0 @@
-# Primer_proyecto
-
